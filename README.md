@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning Svelte.js.
 - 💞️ I’m looking to collaborate on different projects to build my skills and provide solutions.
 - 📫 How to reach me:
-- Email: victorbenedict43@outlook.com
+- Email: Available on request
 - Twitter: @Maxvfresh001
 - Instagram: 
 - While you are here, you should definitely check out some of my stuff👍
